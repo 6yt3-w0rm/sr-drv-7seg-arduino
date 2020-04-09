@@ -4,3 +4,6 @@ hello!
 for more informations go to my instructables page. 
 if encountered any problem can let me know, 
 I will try my best to help solve it, but I might be inactive for a long time.
+
+youtube link 1 : https://youtu.be/jGGu9Rpd3pc
+youtube link 2 : https://youtu.be/hpoyR9ZNJGY
