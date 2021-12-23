@@ -4,9 +4,6 @@ Hello!
 
 For more informations go to my instructables page. 
 
-If encountered any problem can let me know, 
-
-I will try my best to help solve it, but I might be inactive for a long time.
 
 Youtube link 1 : https://youtu.be/jGGu9Rpd3pc
 
